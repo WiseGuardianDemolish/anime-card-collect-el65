@@ -1,4 +1,4 @@
-
+Experience anime card collection like never before with anime card collection hidden Scripts, the #1 Script. Includes infinite resources and anti-ban
 
 
 
